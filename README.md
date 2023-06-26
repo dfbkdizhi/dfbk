@@ -1,5 +1,5 @@
 ## 东方影院 最新地址发布 
-## 导 航 永 久 域 名Https://www.dftv8.com
+## 导 航 永 久 域 名Https://www.dfav.tv
 ## ⭐️ 👉 地址一 ：HttpS://df9516.com
 ## ⭐️ 👉 地址二 ：HttpS://df9517.com
 ## ‼️‼️长按复制到浏览器里面访问以上网址‼️  ‼️
